@@ -1,2 +1,22 @@
-Jack and Jill went up a hill to fetch a pale of water,
-Jack fell down and broke his crown and Jill came tumbling after.
+Once upon a time a brother and sister named Hansel and Gretel lived in a hut in the woods with their father, who was a poor woodcutter, and his wife their stepmother.  The stepmother made life very hard for the two of them.  They were not allowed to eat until after the stepmother had taken everything she wanted off the plates.  Most of the time, there was only a crust of bread left.  And all day long were hard chores for them to do.
+Hansel and Gretel tried to tell their father about this but he would not hear of it.  It seemed the only one he would listen to was his wife.  And all the stepmother talked about was how much trouble it was to have children in the hut, and how much she wished they would go away forever. Each day there was less and less food for the boy and girl to eat.  Yet the stepmother gave them more and more hard work to do.  One day Gretel begged her father, “Please, Father!  All day long we work hard and we’re hungry!”  But the stepmother slapped her face. “You ungrateful brats!" she yelled.  "You will eat us out of house and home!” 
+That night the two children were not allowed to sleep in the hut. Outside in the cold, they shivered and tried to keep each other warm.  Winter was coming, and the clothes they wore were so thin it felt almost as if they had no clothes on at all.
+The next morning when the sun rose, Gretel turned to her little brother. “Hansel,” she said, “we cannot stay here.  We must escape now, today, into the woods!  Surely we will find more to eat when we are on our own than what we get here at home.”
+“Do you think?” said Hansel. "But what if we get lost?”
+“We won’t!” said Gretel.  “I will take bread.  We will drop breadcrumbs behind us.  If we have to, we can follow the crumbs back home.”
+And so the two of them went off into the woods and left their hard life behind. 
+They went deeper and deeper into the woods.  Gretel was careful to drop one crumb and then after a bit, another.
+But alas!  They looked and looked for any sign of something to eat - an apple tree, pear tree, some nuts on the ground, or even dried-up berries.  There was nothing to eat!  They got hungrier and hungrier. At last, poor Hansel and Gretel knew they must return to their hut or they would surely starve. They would just need to find the breadcrumbs and that would lead them home.   Yet when they looked for breadcrumbs, there were none to be found - all the breadcrumbs were gone! 
+A bird whooshed up into the air and in its beak was a large crumb.  Hansel and Gretel were struck with grief – the birds must have taken all their breadcrumbs!  A wolf howled in the distance.  The sun was setting.  Hansel and Gretel were lost and hungry.  Now they were scared, too.
+When they got closer, they could not believe their eyes!  If you can imagine – from top to bottom the hut was made all of candy!  From its gingerbread roof, with frosting all over the walls, and with candies tucked into the frosting, what a sight to see!
+“Gretel!”  Hansel cried out.  Before Gretel could say: “I bet it will be okay if we have just a little taste,” both of them were already biting off small chunks and licking the sweet candy.
+A sharp voice!– “WHO is nibbling on my house?” Hansel and Gretel spun around.  An old witch!
+Stunned, Gretel could only curtsy.  "If you please, ma’am,” she said, as sweetly as she could. “There was so much candy on your house.  And we are so hungry!”
+
+“You have that right, MY house!" snapped the witch.  Her voice dropped.  "Well then,” said the witch in a gentler tone, “come inside.  I'll get something for you to eat.”
+
+Hansel and Gretel looked at each other in delight.  They skipped into the witch’s hut.
+
+A fine meal of soup and bread.  As they licked the last crust of bread and looked around the hut, what the brother and sister saw made their hearts turn cold.  Piles and piles of bones in the corners!  Yet the two children were very tired, and so they slept.
+
+The next morning when they woke, Hansel found himself locked in a cage.  The witch roared, “That's where your brother will stay!  Every day I will fatten him up.  Soon he will make me a fine dinner!”  She laughed and laughed, rubbing her hands with glee.  “Till then,” she said sharply to Gretel, “you will work for me.”
